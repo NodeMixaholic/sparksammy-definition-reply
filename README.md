@@ -2,7 +2,7 @@
 A reply that I felt I needed to make to Oklomsy's "sparksammy-definition". Mostly an open appology letter.
 
 ## Oklomsy, before you read this...
-Let's just stop this war going on in the background I know you are gone and I am proud of what you have become. See here: https://sparksammy.com/oklomsy-truth/in-all-seriousness
+If we aren't going to be friends again, at the very least let's just stop this war going on in the background. I know you are gone, want to be left alone, and I am proud of what you have become. See here: https://sparksammy.com/oklomsy-truth/in-all-seriousness
 
 ## About that COSMOS thing/GEMS NT...
 yeah. it was immature of me to expect that *you* who worked on the original GEMS project, could EVER learn a language much more easy that the source material. Ok but serious though: you didnt have to, and it was pretty unreasonable of me to expect you to work on it if you thought it was harder.
@@ -26,7 +26,7 @@ I still think arabfunny is funny, however if you find it offensive I shall not s
 Turns out annoying is not equal at all to funny. Probably just my zoomer humor coming out.
 
 ## Greif...
-I am sorry for griefing your stuff. My dad did the same for my stuff, and I thought it was ok. It wasn't.
+I am sorry for griefing your stuff. My dad did the same for my stuff, and I thought it was ok because I was mad with power. It wasn't.
 
 ## About the cloud thing...
 Yeah, I removed you from my cloud, but that's just because I didn't trust you with admin powers, and I forgot how to demote people on GSuite. Plus I was too mad at you to figgure it out.
