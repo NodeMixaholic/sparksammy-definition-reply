@@ -2,7 +2,7 @@
 A reply that I felt I needed to make to Oklomsy's "sparksammy-definition". Mostly an open appology letter.
 
 ## Oklomsy, before you read this...
-If we aren't going to be friends again, at the very least let's just stop this war going on in the background. I know you are gone, want to be left alone, and I am proud of what you have become. See here: https://sparksammy.com/oklomsy-truth/in-all-seriousness
+If we aren't going to be friends again (and from the letter you sent me it seems like we aren't), at the very least let's just stop this war going on in the background. I know you are gone, want to be left alone, and I am proud of what you have become. See here: https://sparksammy.com/oklomsy-truth/in-all-seriousness
 
 ## About that COSMOS thing/GEMS NT...
 yeah. it was immature of me to expect that *you* who worked on the original GEMS project, could EVER learn a language much more easy that the source material. Ok but serious though: you didnt have to, and it was pretty unreasonable of me to expect you to work on it if you thought it was harder.
